@@ -11,4 +11,4 @@
 - Homo Deus: A History of Tomorrow by Yuval Noah Harari (Wotjek Pituła)
 
 ## Science fiction
-- ???
+- https://en.wikipedia.org/wiki/Leviathan_Wakes (Dominik Zajkowski)
